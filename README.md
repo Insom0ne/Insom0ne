@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Insom0ne
+- 👀 I’m interested in finding you
+- 🌱 I’m currently learning who you are
+- 💞️ I’m looking to collaborate on revenge
+- 📫 reach me
